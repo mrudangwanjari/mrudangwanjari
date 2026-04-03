@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **wmrudang@gmail.com**
 
-- 📄 Know about my experiences [3x Hackathon Finalist](3x Hackathon Finalist)
+- 📄 Know about my experiences (3x Hackathon Finalist)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
